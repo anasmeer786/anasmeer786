@@ -1,4 +1,4 @@
-Computer Science Honors and Mathematics Honors undergraduate at University of Memphis with a passion of Helping others and working alongside teams and organizations. 
+Recent Computer Science Honors and Mathematics Honors graduate from the University of Memphis with a passion of Helping others and working alongside teams and organizations. 
 
 Technology and Innovation intern at TVA with strong background in technology and Management.
 
