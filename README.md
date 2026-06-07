@@ -5,6 +5,9 @@ Specialist Technology at Tennessee Valley Authority (TVA) with experience in AI 
 Grew up in Pakistan and spent 18 years there.
 
 🔭 I’m currently working on AI automation projects at TVA
+
 🌱 I’m currently learning Cloud, AI/LLMs, and system design
+
 💬 Ask me about my journey, AI projects, and Cricket
+
 ⚡ Fun fact: I’m a great Cricket player and love strategy-based games
